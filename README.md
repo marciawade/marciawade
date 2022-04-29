@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @marciawade
+- 👀 I’m interested in books, gaming and writing.
+- 🌱 I’m currently learning html-codes.
+- 💞️ I’m looking to collaborate on with interesting people!
+- 📫 How to reach me - trhough my email.
